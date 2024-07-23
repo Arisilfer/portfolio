@@ -13,8 +13,8 @@
 
 ## Feito por:
 
-### Joana Santos
+### Ariane Ferreira
 
-### Linkedin: https://www.linkedin.com/school/aluracursos/
+### Linkedin: https://www.linkedin.com/in/ariane-ferreira-6019881b5/
 
 
